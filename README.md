@@ -11,4 +11,3 @@ albeit, with a degree change.
 
 Some hobbies of mine include, Graphic Design, Playing video games with my friends, and I love watching, and diving into the stats and small details in sports.
 
-
