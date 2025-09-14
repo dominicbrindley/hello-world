@@ -11,4 +11,4 @@ albeit, with a degree change.
 
 Some hobbies of mine include, Graphic Design, Playing video games with my friends, and I love watching, and diving into the stats and small details in sports.
 
-# Changes include everything after "I am Dominic Brindley and I am a novice to GitHub and I am excited to learn!" 
+
